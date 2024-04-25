@@ -4,7 +4,7 @@
 ------
 :heart: :point_right: 【最新地址】 ：[https://10d.sdsp20.xyz/10dian](https://10d.sdsp20.xyz/10dian)
 ------
-:heart: :point_right: 【最新地址】 ：[https://sdsp10.xyz/10dian](https://www.sdsp10.xyz/10dian)
+:heart: :point_right: 【最新地址】 ：[https://10d.sdsp10.xyz/10dian](https://10d.sdsp10.xyz/10dian)
 ------
 :heart: :point_right: 【永久地址】 ：[https://3旻覇.sd301.xyz/杨枝甘露](https://3旻覇.sd301.xyz/杨枝甘露)
 ------
